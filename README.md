@@ -7,9 +7,9 @@
 
 - 👯 I’m looking to collaborate on **web development**
 
-- 📫 How to reach me **harshaljadhav4835@gmail.com**
+- 📫 How to reach me **harshal8425@gmail.com**
 
-- ⚡ Fun fact **I think I can get things done at any cost**
+- ⚡ Fun fact **I maintain my curiousity to learn new technologies and can get things done at any cost**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
